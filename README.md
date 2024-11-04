@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @d2ag
+- 👀 I’m interested in seeing correctly
+- 🌱 I’m currently learning how to clean glasses
+- 💞️ I’m looking to collaborate on a new glass cleaning product
